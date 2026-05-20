@@ -1,0 +1,1 @@
+# 1Ganesh0-startup-funding-analysis
